@@ -1,4 +1,4 @@
-
+PureVPN ultra-secure Client: ad-blocker & server-switching is the best PureVPN client, featuring ad-blocker and server-switching. Secure, fast, and optimized for privacy.
 
 
 
